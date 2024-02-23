@@ -1,0 +1,1 @@
+# INFORMATIC_22_A
